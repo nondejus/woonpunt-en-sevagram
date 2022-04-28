@@ -1,1 +1,5 @@
 # huiskamer-oorlog-militia-woonpunt-en-sevagram
+
+https://nl.wikipedia.org/wiki/Geluid
+
+https://en.wikipedia.org/wiki/Bombardment
